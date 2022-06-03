@@ -4,7 +4,9 @@
 
 About me
 -The ability to work in a team.
+
 -Good communication, sociability.
+
 -Receptivity and quick adaptation to the new.
 
 
